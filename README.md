@@ -47,6 +47,12 @@ WM - 8RM
 EM - 14RM
 Singapore - 15RM
 
+Japan Merch:
+Twice Hare Hare - 40RM (Unavailable)
+
 Other products:
 Twice POB - 20RM (Available)
+Twice Lighstick - 160RM (Available)
+IVE Lighstick - 200RM (Available)
 IVE POB - 35RM (Unavailable)
+
